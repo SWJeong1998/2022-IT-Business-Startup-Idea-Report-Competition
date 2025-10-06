@@ -1,0 +1,1 @@
+# 2022-IT-Business-Startup-Idea-Report-Competition
